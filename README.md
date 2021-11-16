@@ -22,3 +22,5 @@
 ![29](https://user-images.githubusercontent.com/93451254/141438282-e0f1afe2-c8e8-4098-8159-77c1933eca1b.png)
 ![1623758559564](https://user-images.githubusercontent.com/93451254/141438294-3c14efd1-c409-4aba-ac84-8334cf0fb42f.png)
 ![1623758689890](https://user-images.githubusercontent.com/93451254/141438299-e43c2474-6f7c-4124-87b8-f8fabebc97ca.png)
+![lain-dark](https://user-images.githubusercontent.com/93451254/141940665-ef5d90d6-dbb3-44c5-a991-fa7d01de49d0.png)
+![1611980371837](https://user-images.githubusercontent.com/93451254/141940671-bb38e3b5-6dff-4895-9396-a9536fc3e023.png)
