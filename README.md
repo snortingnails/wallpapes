@@ -14,7 +14,6 @@ I don't always use a wallpaper, but these are my go-to
 ![1593005334973](https://user-images.githubusercontent.com/93451254/141438216-4c02439c-41cb-4d11-9df4-c424f8d515cd.png)
 ![20210703_213553](https://user-images.githubusercontent.com/93451254/141438218-0f0db788-2bf7-4940-bf59-3861019bcee0.jpg)
 ![gentoo-abducted-1680x1050](https://user-images.githubusercontent.com/93451254/141438223-326c3204-0f69-4c91-a7cb-7779f96e106a.png)
-![wallhaven-wq5olq](https://user-images.githubusercontent.com/93451254/141438224-a356e88a-7a1b-4504-83d8-6631888fc6af.png)
 ![76295-Serial_Experiments_Lain-anime](https://user-images.githubusercontent.com/93451254/141438233-8f2c30d9-af36-4906-95e4-910db1f3005b.jpg)
 ![LtphhrJ](https://user-images.githubusercontent.com/93451254/141438238-9e41f0b6-816f-4f11-8428-d7159eb2fcea.jpeg)
 ![41a6b9cceb63b9a0192ee2d5d461c162](https://user-images.githubusercontent.com/93451254/141438241-1abe16e6-0575-4f4a-82ec-c10b0b12b81d.jpg)
