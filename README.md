@@ -28,3 +28,6 @@ I don't always use a wallpaper, but these are my go-to
 ![upscaled_hd](https://user-images.githubusercontent.com/93451254/185270180-5a87e2ad-f391-4cfb-93c5-05f412485902.png)
 ![upscaled_wall_monitors](https://user-images.githubusercontent.com/93451254/185270195-097b1bed-828d-471e-ae9c-e47762546b17.png)
 ![sandy_smith_greenblue04_1](https://user-images.githubusercontent.com/93451254/185270205-0dd9e630-048e-49b0-848e-8358c4353a31.png)
+![1634869265639](https://user-images.githubusercontent.com/93451254/185270322-1ceed216-069b-4f4a-b16d-e3c258e26448.png)
+![johan-christian-dahl-view-of-dresden-by-moonlight-wallpaper](https://user-images.githubusercontent.com/93451254/185270328-bb300da9-1285-486c-ac39-c2b039f23385.jpg)
+![All-Good-People-3](https://user-images.githubusercontent.com/93451254/185270337-c9c78ffa-8a57-4acb-8fca-91b38d1e2d2a.jpg)
