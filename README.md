@@ -25,3 +25,6 @@ I don't always use a wallpaper, but these are my go-to
 ![1623758689890](https://user-images.githubusercontent.com/93451254/141438299-e43c2474-6f7c-4124-87b8-f8fabebc97ca.png)
 ![lain-dark](https://user-images.githubusercontent.com/93451254/141940665-ef5d90d6-dbb3-44c5-a991-fa7d01de49d0.png)
 ![1611980371837](https://user-images.githubusercontent.com/93451254/141940671-bb38e3b5-6dff-4895-9396-a9536fc3e023.png)
+![upscaled_hd](https://user-images.githubusercontent.com/93451254/185270180-5a87e2ad-f391-4cfb-93c5-05f412485902.png)
+![upscaled_wall_monitors](https://user-images.githubusercontent.com/93451254/185270195-097b1bed-828d-471e-ae9c-e47762546b17.png)
+![sandy_smith_greenblue04_1](https://user-images.githubusercontent.com/93451254/185270205-0dd9e630-048e-49b0-848e-8358c4353a31.png)
